@@ -11,7 +11,8 @@
 
 - 📫 How to reach me **abhishekveeravelli12@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1B_vtH7DsjPh99A6I9hgWKtedTphFDT2x/view?usp=sharing](https://drive.google.com/file/d/1B_vtH7DsjPh99A6I9hgWKtedTphFDT2x/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/17v1IJrvE2exDwP2tL4WOJxUfqALAH335](https://drive.google.com/drive/folders/17v1IJrvE2exDwP2tL4WOJxUfqALAH335)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
